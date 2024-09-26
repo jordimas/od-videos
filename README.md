@@ -26,6 +26,10 @@ https://www.youtube.com/watch?v=GlWNuzrqe7U
 biodiversity.mp4
 Llicència Creative Commons Reconeixement
 
+https://www.youtube.com/watch?v=cOIaEa7dhoU
+telegram.mp4
+Llicència Creative Commons Reconeixement
+
 Downloader: https://en1.savefrom.net/1-youtube-video-downloader-3vV/
 
 
