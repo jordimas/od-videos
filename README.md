@@ -30,6 +30,11 @@ https://www.youtube.com/watch?v=cOIaEa7dhoU
 telegram.mp4
 Llicència Creative Commons Reconeixement
 
+https://www.youtube.com/watch?v=Oym-nwvgTfY
+adminisiongrado.mp4
+Creative Commons Attribution license (reuse allowed)
+Language: Spanish
+
 Downloader: https://en1.savefrom.net/1-youtube-video-downloader-3vV/
 
 
